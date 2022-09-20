@@ -1,6 +1,6 @@
 **求职意向-化学工程师**
 >**葛聪聪**\
->👨男，中共党员，籍贯吉林省松原市<br>🌏*江苏省南京市玄武区孝陵卫街道200号南京理工大学* <br>📮daizir@icloud.com <br>☎+86 13022582115
+>男，中共党员，籍贯吉林省松原市<br>[*江苏省南京市玄武区孝陵卫街道200号南京理工大学*](https://maps.apple.com/?address=No.200,%20Xiaolingwei%20Street,%20Xuanwu,%20Nanjing,%20Jiangsu%20China&auid=1117162244842439&ll=32.028910,118.855629&lsp=57879&q=Nanjing%20University%20of%20Science%20and%20Technology&_ext=CjcKBAgDEAgKBAgEEAQKBAgFEAMKBAgGEBkKBAgbEAMKBAhSEAYKBAhVEAoKBAhZEAEKBQikARABEiQpmeTBXNEBQEAxg+m6kLq1XUA5phimcL4FQEBBvwP95ee3XUA%3D&t=m) <br>daizir@icloud.com <br>+86 13022582115
 
 >**👨‍🎓 教育背景（211、双一流）**
 ><details> <summary>南京理工大学-硕士（有机化学）</summary>2020-2023：研究有机化合物的合成及性能。在校与同学老师和睦相处，认真完成科研任务，以专业第一名获得学业一等奖学金，专利一篇（在审），第一作者SCI文章一篇（在审）。在实验室负责管理高效液相色谱仪。在校期间担任院研究生会副主席、主席，获得优秀研究生干部称号。</details>
