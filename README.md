@@ -17,12 +17,9 @@ daizir@icloud.com\
 以完成整个生产车间的交付为目标，与其他各专业协同，根据国家标准规范完成工程项目的工艺设计及优化，管道设备布置及施工图等。
 </details>
 
->**项目经验及技能**
-><details> <summary>Title</summary>
-contents ...
-</details>
-><details> <summary>Title</summary>
-contents ...
+> **项目经验及技能**
+><details> <summary>Title</summary> contents ...
+<details> <summary>Title</summary> contents ...
 </details>
 
 制药公司生成车间的工艺设计优化及施工图\
